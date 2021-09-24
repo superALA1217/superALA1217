@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @superALA1217
+- 👀 I’m interested in videogames, music, and book
+- 🌱 I’m currently learning Python and Javascript
+- 💞️ I’m looking to collaborate on nothing lol
+- 📫 please don't reach me
